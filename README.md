@@ -1,16 +1,20 @@
-:bangbang::bangbang:熊猫成人 最新地址发布:bangbang::bangbang:
+:bangbang::bangbang:胖大AV 最新地址发布:bangbang::bangbang:
 ==
-:fire: :point_right: 【地址一】 ：https://vv88tt.com
+:fire: :point_right: 【地址一】 ：https://5pdav.com
 ------
-:fire: :point_right: 【地址二】 ：https://vv77tt.com
+:fire: :point_right: 【地址二】 ：https://6pdav.com
 ------
-:fire: :point_right: 【地址三】 ：https://tt88yy.com
+:fire: :point_right: 【地址三】 ：https://7pdav.com
 ------
-:globe_with_meridians: :point_right: 【海外地址】 ：https://yy8y.com
+:fire: :point_right: 【地址四】 ：https://8pdav.com
+------
+:fire: :point_right: 【地址五】 ：https://9pdav.com
+------
+:fire: :point_right: 【永久发布地址】 ：https://pdav.me
 ------
 :white_check_mark: 【邮箱联系方式】 ：
 ------
-:point_right: 加入 熊猫成人 电报频道  ：
+:point_right: 加入 胖大AV 电报频道  ：
 ------
 :bangbang:重要提醒:bangbang:请立即收藏本页面，避免走丢！
 ==
